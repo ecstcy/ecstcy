@@ -1,1 +1,1 @@
-![image](https://c.tenor.com/_VkY3D7F2EgAAAAd/tenor.gif)
+![image](https://i.imgur.com/k0Tua34.gif)
