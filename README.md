@@ -1,1 +1,1 @@
-<img src="https://i.imgur.com/k0Tua34.gif" style="display: flex; align-items: center; justify-content: center;">
+![image](https://github.com/ecstcy/ecstcy/assets/161474829/60015801-33ef-44a0-9765-12a413f247bf)
